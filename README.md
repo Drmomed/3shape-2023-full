@@ -1,5 +1,6 @@
-# 3shape2023full
+# 3shape-2023-full
 Get 3Shape 23 full
+
 Get 3shape 23 activation
 
 link for downloading 3shape 23 files : https://mega4upload.com/bb7mnzeuok2x
