@@ -7,7 +7,7 @@ link for downloading 3shape 23 files : https://mega4upload.com/bb7mnzeuok2x
 
 make payment
 
-Contact me on telegram :: t.me/Dr_momed
+Contact me on telegram :: t.me/Drmomed
 
 $$$$$$
 for full keygen files
